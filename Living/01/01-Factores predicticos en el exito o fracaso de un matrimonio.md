@@ -2,7 +2,7 @@
 
 #### Autor: Ernest W. Burgess
 
-ÉXITO o fracaso en el matrimonio pueden predecirse antes del matrimonio.  
+ÉXITO o fracaso en el matrimonio puede predecirse antes del matrimonio.  
 Esta es la conclusión relevante de varios estudios ya completados o en curso.
 
 Todos estos estudios parten del supuesto de que ciertos factores presentes antes del matrimonio se asocian con el éxito y el fracaso matrimonial.
