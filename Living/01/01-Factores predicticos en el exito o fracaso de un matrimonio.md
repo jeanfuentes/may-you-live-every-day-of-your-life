@@ -10,3 +10,5 @@ Todos estos estudios parten del supuesto de que ciertos factores presentes antes
 El primer problema es determinar qué factores parecen tener una relación significativa con la felicidad conyugal y de qué manera estos factores significativos parecen influir en el éxito o el fracaso del ajuste matrimonial.
 
 Por ejemplo, si la edad al contraer matrimonio resulta ser un factor significativo, la pregunta es qué grupos de edad son más favorables, algo favorables, ni favorables, ni desfavorables, algo desfavorables o muy desfavorables para la armonía conyugal.
+
+WIP
